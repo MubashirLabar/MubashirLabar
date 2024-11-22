@@ -1,4 +1,4 @@
-***[![Header](https://github.com/MubashirLabar/mubashirlabar/blob/main/poster.png)](https://www.youtube.com/@mubashirlabar5537)***
+
 
 **Languages I have used**
 
